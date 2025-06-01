@@ -7,6 +7,7 @@
 Моя цель — создавать комфортные и стильные пространства, которые отражают индивидуальность каждого человека.
 
 Вот немного фотографий из моих работ:
-1.![Интерьеры кабинетов](https://mir-s3-cdn-cf.behance.net/project_modules/1400/76975548980833.58a72e0693b21.jpg)
-2.![Интерьеры квартиры студий](https://cdn0.divan.ru/img/v1/RGBtzyBP6BAl-ePop1YFWuYtwMgVKEYfO4yDdjYxnIg/rs:fit:1920:1440:0:0/g:ce:0:0/bg:ffffff/q:85/czM6Ly9kaXZhbi93aWtpLWFydGljbGUvNTE2MTA1OC5qcGc.jpg)
-3.![Интерьеры частных домов](https://pro-dachnikov.com/uploads/posts/2021-10/1633329888_10-p-gostinaya-stolovaya-s-lestnitsei-foto-11.jpg)
+
+1.Интерьеры кабинетов ![Интерьеры кабинетов](https://mir-s3-cdn-cf.behance.net/project_modules/1400/76975548980833.58a72e0693b21.jpg)
+2.Интерьеры квартиры студии ![Интерьеры квартиры студий](https://cdn0.divan.ru/img/v1/RGBtzyBP6BAl-ePop1YFWuYtwMgVKEYfO4yDdjYxnIg/rs:fit:1920:1440:0:0/g:ce:0:0/bg:ffffff/q:85/czM6Ly9kaXZhbi93aWtpLWFydGljbGUvNTE2MTA1OC5qcGc.jpg)
+3.Интерьеры частных домов ![Интерьеры частных домов](https://i.pinimg.com/originals/a2/61/c2/a261c23f803b4ef6d7a2fb141676bf08.jpg)
